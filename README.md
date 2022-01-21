@@ -1,6 +1,6 @@
 
   
-### Hi there, I'm suyeon choi 👋  
+### Hi there 👋  
 
 <br/>
 
